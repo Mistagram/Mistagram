@@ -1,4 +1,5 @@
-@ -3,4 +3,24 @@
+¡¡¡¡¡WELCOMEEEEEE!!!
+
 - My name is Mist, I´m from Chile and I´m a student
 - My English is my weakness, but out of obligation I must learn qwq
 
